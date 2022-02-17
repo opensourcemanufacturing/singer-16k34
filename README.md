@@ -5,3 +5,5 @@ Personal repo for singer 16K34 knowlagebase
 
 VIDEOS:
 - [Restoring a singer machine with comercial decals and handcrank](https://youtu.be/Z2g0d7USp3Q)
+
+https://www.facebook.com/infocosturalisboa/posts/singer-16k33-de-1920-acabada-de-ser-restaurada-e-entreguetinha-apenas-98-anos-qu/1928860584079404/
